@@ -5,7 +5,7 @@
 
 1. [Encuesta](https://docs.google.com/forms/d/17aPmRWOzh09dMR5uJEPeCeZSj79cDFo8isZ8BlhVE6o/edit) -encuesta Protección y Salud
 
-2.[GOOGLE DOCS](https://docs.google.com/presentation/d/1ahOQGFWmRUuzTjZ6tAcwvb3GxS12gma3OB6LsOwTWo0/edit?usp=sharing) -Presentación de las mascarillas
+2. [GOOGLE DOCS](https://docs.google.com/presentation/d/1ahOQGFWmRUuzTjZ6tAcwvb3GxS12gma3OB6LsOwTWo0/edit?usp=sharing) -Presentación de las mascarillas
  
 3. [google docs](https://docs.google.com/document/d/1WM2NtceK-f6FfW2tHAYM6zsG2ii5uS1CDUboNaPe_ak/edit) - acerca de cómo elegir una mascarilla
 
